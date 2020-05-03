@@ -1,4 +1,4 @@
 # K-P
-World
-
+World is full of stories. 
+Yet again! 
 Kansi auki ja lukemaan.
